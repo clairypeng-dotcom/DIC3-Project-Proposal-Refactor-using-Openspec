@@ -1,3 +1,4 @@
+<img width="3508" height="2481" alt="Food_Guardian_A4_Infographic_Refined" src="https://github.com/user-attachments/assets/9424547d-ea48-494a-89b1-84e330c69c0c" />
 # Food Guardian
 
 ### Three Core Innovations｜三大核心創新
